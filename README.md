@@ -1,3 +1,3 @@
 # 💛 Support Ukraine 💙
 
-## See https://rihtgofen.uasupport.live
+## See https://rihtgofen.live
